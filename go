@@ -1,0 +1,6 @@
+<!DOCTYPE html>
+<html>
+  <head>
+    <meta http-equiv="refresh" content="0; url=https://http://sss.serprise.com/aWY3dHI4L21aNXFsOVhDS1ZDTWxIZ2Mxa055aDNHMW5vQVhXSCtJWDhDN1B1d0dsbW1UUmdsa3c0T05sMlhVaEpoWi9rUy9ZTGdOUkFxYnZMY2RxQ3c9PQ__">
+  </head>
+</html>
